@@ -4,6 +4,7 @@
 Pronouns: he/him/his
 
 Email: ericfinnjones@gmail.com
+
 [LinkedIn](https://www.linkedin.com/eric-f-jones)
 
 <!--
